@@ -1,0 +1,1 @@
+# Tugas-visi-komputer_Moh-aulia-firdianshah
